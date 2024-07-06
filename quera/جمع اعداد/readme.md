@@ -1,1 +1,0 @@
-[جمع اعداد](https://quera.ir/problemset/637/)

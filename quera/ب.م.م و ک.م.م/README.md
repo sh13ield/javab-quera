@@ -1,1 +1,0 @@
-[ب.م.م و ک.م.م](https://quera.ir/problemset/590/)

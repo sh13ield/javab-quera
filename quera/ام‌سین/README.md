@@ -1,1 +1,0 @@
-[ام‌سین](https://quera.org/problemset/28947/)

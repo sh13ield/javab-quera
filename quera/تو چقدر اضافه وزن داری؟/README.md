@@ -1,1 +1,0 @@
-[تو چقدر اضافه وزن داری؟](https://quera.org/problemset/3404/)

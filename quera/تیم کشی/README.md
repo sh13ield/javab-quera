@@ -1,1 +1,0 @@
-[تیم کشی](https://quera.org/problemset/80651/)

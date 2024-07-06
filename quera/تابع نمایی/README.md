@@ -1,1 +1,0 @@
-[تابع نمایی](https://quera.ir/problemset/297/)

@@ -1,1 +1,0 @@
-[چاپ لوزی](https://quera.ir/problemset/618/)
